@@ -35,6 +35,5 @@ Summarized key insights
 Provided actionable business recommendations
 Created presentation for stakeholders.
 
-Path of work 
 
 
